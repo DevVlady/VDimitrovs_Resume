@@ -1,1 +1,1 @@
-# VDimitrov_Resume
+# Vladimir Dimitrovs Resume
