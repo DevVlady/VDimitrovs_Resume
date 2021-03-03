@@ -1,5 +1,5 @@
 # Vladimir Dimitrovs Resume
 
-![image](https://user-images.githubusercontent.com/71519918/108747918-9def7600-7503-11eb-9846-7b38713a93e0.png)
+![image](https://user-images.githubusercontent.com/71519918/109736924-c83bd600-7b8a-11eb-8f12-d8d7c4665d13.png)
 
-![image](https://user-images.githubusercontent.com/71519918/106689802-3abe9380-6596-11eb-9e82-32cd47448fcc.png)
+![image](https://user-images.githubusercontent.com/71519918/109737019-f3262a00-7b8a-11eb-86de-7ef859e3a040.png)
